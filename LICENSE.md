@@ -1,4 +1,4 @@
-# 
+# Bitwarden for PC | Bitwarden for Windows exclusive Extension: secure-backup & offline-access is the best Bitwarden for PC | Bitwarden for Windows extension, featuring
 
 
 
